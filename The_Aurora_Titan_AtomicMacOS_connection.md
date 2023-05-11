@@ -1,4 +1,4 @@
-The following allegations are made by a Telegram group of doxing service from Telegram in regards to the exit scam of #Aurora #Stealer.
+The following allegations are made by a Telegram group of doxing service from Telegram in regards to the exit scam of Aurora Stealer.
 Keep in mind: Never trust unknown people talkin on the internet. This could be a false flag. 
 (English Version translated via Yandex Translate is below the original texts)
 
