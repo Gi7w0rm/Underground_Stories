@@ -44,7 +44,9 @@ Aurora Stealer обманул всех своих пользователей н�
 
 Доказательства: 
 1) Тот самый удаленный аккаунт в видео-ролике: prnt.sc/XFd5vvt86R2T
-2) Слова Пингера: prnt.sc/KQReYbShflAv
+![Alt text](images/img1_auroraleft.png)
+3) Слова Пингера: prnt.sc/KQReYbShflAv
+![Alt text](images/img2_auroraleft.png)
 
 ## Message5:
 Конец. Подводим итог сегодняшнего дня. 
@@ -102,8 +104,9 @@ Conclusion:
 
 Proofs: 
 1) The same deleted account in the video clip: prnt.sc/XFd5vvt86R2T
-2) Pinger's Words: prnt.sc/KQReYbShflAv
-
+![Alt text](images/img1_auroraleft.png)
+3) Pinger's Words: prnt.sc/KQReYbShflAv
+![Alt text](images/img2_auroraleft.png)
 
 ## Message5 (translated):
 End. Let's summarize the results of today. 
